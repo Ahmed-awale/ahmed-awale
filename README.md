@@ -11,7 +11,7 @@
 
 - 📫 How to reach me: *Ahmedhusseinabdi44@gmail.com*
 
-- 📄 Know about my experiences [My Portfolio](https://www.tiktok.com/@ahmed_haagio)
+- 📄 Know about my experiences [My Portfolio](https://www.tiktok.com/@ahmed_awaale?lang=en)
 
 - ⚡ Fun fact: *Don't lose hope*
 
